@@ -1,1 +1,1 @@
-jszostek
+Jakub Szostek
